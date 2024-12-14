@@ -179,8 +179,8 @@ It has a mandapam (hall) with beautifully carved pillars,which houses the main s
 ## OUTPUT
 ![WhatsApp Image 2024-12-14 at 11 01 30 AM](https://github.com/user-attachments/assets/f742c89f-d7b7-4d14-bad6-a8ab17ad14ac)
 ![WhatsApp Image 2024-12-14 at 11 01 31 AM](https://github.com/user-attachments/assets/a966186a-0c9a-44e9-b7cf-9ac1c4973e1e)
-![WhatsApp Image 2024-12-14 at 11 01 31 AM (1)](https://github.com/user-attachments/assets/494e71ed-977d-49da-8f79-6f4bf6a3d100)
 ![WhatsApp Image 2024-12-14 at 11 01 31 AM (1)](https://github.com/user-attachments/assets/31939170-2d48-451d-a357-66ea992d6e1b)
+![WhatsApp Image 2024-12-14 at 11 01 31 AM (2)](https://github.com/user-attachments/assets/36824f70-b808-44df-bd87-c7440a2f4817)
 ![WhatsApp Image 2024-12-14 at 11 01 32 AM](https://github.com/user-attachments/assets/70999fa0-88b5-4894-a77e-9a162363ba0d)
 ![WhatsApp Image 2024-12-14 at 11 01 32 AM (1)](https://github.com/user-attachments/assets/59bb94a4-95f7-420a-9164-2aa82015178e)
 
